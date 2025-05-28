@@ -59,6 +59,6 @@ Member, Interaction Design Foundation
 Volunteer, Design mentorship sessions for aspiring creatives
 
 
-**REFERENCES **
+**REFERENCES**
 Available upon request
 
